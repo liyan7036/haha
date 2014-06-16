@@ -1,3 +1,3 @@
 hahahhhh
 make a good choice
-hahahah
+Creating a new branch is quick AND simple.
